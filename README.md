@@ -61,10 +61,3 @@ A personal highlight of this academic journey was discovering the power of deep-
 
 ---
 
-### Contact
-
-Thank you for reviewing my research. I am passionate about the future of interior design and am eager to apply my skills in a professional setting.
-
-*   **LinkedIn:** `https://www.linkedin.com/in/adilchowdhury-c7/`
-*   **Full Portfolio:** `https://issuu.com/chowdhuryinnovativecompany/docs/chowdhury_adil_portfolio, https://aerocore.jimdosite.com/`
-*   **Email:** adilchowdhury2002@gmail.com
